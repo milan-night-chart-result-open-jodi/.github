@@ -27,6 +27,14 @@
 
 इसमें शामिल ज्योतिषीय गणनाएँ और विधियाँ कई बार लॉटरी के परिणामों में सटीकता ला सकती हैं, लेकिन यह हमेशा शर्तों पर निर्भर करता है। मिलन रिजल्ट का पालन करते समय यह ध्यान रखना जरूरी होता है कि यह केवल एक संभावना है और इसका प्रभावी परिणाम हमेशा सुनिश्चित नहीं होता। हालांकि, बहुत से लोग इसे अपने निर्णयों में मार्गदर्शन के रूप में उपयोग करते हैं।
 
+1. [sridevi night chart open jodi result](https://github.com/sridevi-night-chart-open-jodi-result)
+2. [Satta Matka Result Kalyan Final Ank](https://github.com/Satta-Matka-Result-Kalyan-Final-Ank/)
+3. [satta matka king kalyan main bazar ank](https://github.com/satta-matka-king-kalyan-main-bazar-ank/)
+4. [rajdhani night chart result jodi-panel](https://github.com/rajdhani-night-chart-result-jodi-panel)
+5. [milan night chart result open jodi](https://github.com/milan-night-chart-result-open-jodi)
+6. [kalyan matka chart result open jodi](https://github.com/kalyan-matka-chart-result-open-jodi)
+7. [SATTA KING 2025 CHART RESULT](https://github.com/SATTA-KING-2025-CHART-RESULT)
+
 ---
 
 ### Milan Open | मिलन ओपन
